@@ -240,4 +240,4 @@ South of Midnight is available as a complete free version, which includes all fe
 Ready to embark on your adventure? Download South of Midnight for free today and explore the enchanting world that awaits!
 
 ---
-**Last updated:** 2026-11-01 20:55:56 UTC
+**Last updated:** 2026-11-02 00:13:05 UTC
